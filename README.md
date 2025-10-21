@@ -1,0 +1,1 @@
+# maniadeluxe.github.io
